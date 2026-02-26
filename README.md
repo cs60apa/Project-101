@@ -1,3 +1,3 @@
 ## project 101
 
-    - For learning only
+    - Coming soon
